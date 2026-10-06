@@ -3,13 +3,14 @@ join for more mods https://discord.gg/prototypemodding
 
 
 WING TAG MODDED
-Modded by VALAK
+
+**Modded by VALAK**
 
 -=-=-=--=-=-=-=-=-=-=-=-=-=
 [W] - Working TESTED NOT BROKEN
 -=-=-=--=-=-=-=-=-=-=-=-=-=
-<--ITEMS-->
-EVERYCOSMETIC FREE STICK INCLUDED SOUNDBOARDS [W] FULLY WORKING SMOOTH
+**<--ITEMS-->**
+- EVERYCOSMETIC FREE STICK INCLUDED SOUNDBOARDS [W] FULLY WORKING SMOOTH
 -=-=-=--=-=-=-=-=-=-=-=-=-=
 WORKING ANTI BAN 99% works on JOKER APK
 ------------------------------
@@ -26,4 +27,3 @@ JOKER MENU https://gofile.io/d/9HRzm0Ty
 
 -=-=-=--=-=-=-=-=-=-=-=-=- 
 Reason: SKIDDED COPY UNDERAGE STAFF TERRIBLE MODERATION
-
