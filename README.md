@@ -2,7 +2,7 @@ join for more mods https://discord.gg/prototypemodding
 
 
 
-WING TAG MODDED
+# WING TAG MODDED
 
 **Modded by VALAK**
 
